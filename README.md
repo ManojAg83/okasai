@@ -1,0 +1,2 @@
+# okasai
+Privacy Policy
